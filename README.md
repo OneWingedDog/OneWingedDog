@@ -2,9 +2,9 @@
 - 👀 I’m interested in video gmanes
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on nothing right now
-- 📫 How to reach me dont
-- 😄 Pronouns: He/Him
-- ⚡ Fun fact: E
+- 📫 How to reach me: dont
+- 😄 Pronouns: He/Him (I dont care though)
+- ⚡ Fun fact: Errr uhhmm
 
 <!---
 OneWingedDog/OneWingedDog is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
