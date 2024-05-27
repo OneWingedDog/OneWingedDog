@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @OneWingedDog
-- 👀 I’m interested in video gmanes and digital art
+- 👀 I’m interested in video games and digital art
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on nothing right now
 - 📫 How to reach me: dont
 - 😄 Pronouns: He/Him (I dont care though)
-- ⚡ Fun fact: I cn down a bag of fruit snacks in 10 seconds.
+- ⚡ Fun fact: Im trash at rythm games
 - ⌨️ I'm currently working on The Great Bean Shootout https://onewingeddog.itch.io/the-great-bean-shootout  
 <!---#
 OneWingedDog/OneWingedDog is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
